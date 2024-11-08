@@ -9,6 +9,7 @@
 
 *Fall 2021 - Current*
 - Academic memberships: Geoscience Club
+- Awards: 2024 Frances A. Velay Fellowship 
 
 ## Research Projects
 **A Hidden Diversity of Geckolets on the Caribbean Island of Hispaniola**
