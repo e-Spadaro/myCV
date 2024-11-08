@@ -10,6 +10,11 @@
 *Fall 2021 - Current*
 - Academic memberships: Geoscience Club
 
+## Research Projects
+
+
+## Poster Presentations
+"A Hidden Diversity of Geckolets on the Caribbean Island of Hispaniola." Presented at Temple University, 2024 Summer Research and Leadership Symposium, August 1, 2024, and Temple University Undergraduate Research Symposium, November 13, 2024.
 
 ## Work Experience																			
 
