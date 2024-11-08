@@ -12,6 +12,7 @@
 
 ## Research Projects
 **A Hidden Diversity of Geckolets on the Caribbean Island of Hispaniola**
+
 *Spring 2024 - Current*
 
 ## Poster Presentations
